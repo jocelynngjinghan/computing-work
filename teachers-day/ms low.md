@@ -6,4 +6,4 @@
 ## She is very environmentally friendly.
 ## always ask me and hai ning to sweep the floor and keep the classoom clean when she is doing her things outside.
 ## I remember a day that she told us to be attentive and not to go toilet.
-
+## She was a scholar who went overseas to study 
